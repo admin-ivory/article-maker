@@ -1,0 +1,1 @@
+J'ai des souvenirs émus de moment de complicité avec ma grand-mère maternelle en Guadeloupe dans les Grands Fonds du Moule m'initiant à la fabrication traditionnelle et à la main de cet élixir noir : l'huile Karapate. 
